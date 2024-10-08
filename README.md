@@ -1,1 +1,3 @@
 # projek-expert-system-sederhana
+HARFI SANI RAVADA-2203431
+MUHAMMAD MATTHEW JANOTAMA-2205372
